@@ -49,6 +49,6 @@ The Sims game along with the aforementioned expansive collection of packs and ad
 
 #### ANON: Sims 3 Series
 
-![Anon Sims 3 Series Season 1](/assets/ToniVD_4.jpeg)
+![Anon Sims 3 Series Season 1](/assets/ToniVD_4.jpg)
 
 [**Anon**](https://www.youtube.com/watch?v=O4bz_A6Ntwg&list=PL7FD3BACFAA86BE24) is a Sims series, with 10 seasons, that follows a character named Chelsea who likes to document her various life experiences in a blog.
