@@ -14,9 +14,13 @@ The morning was a very slow morning. There was alot of traffic but that couldn't
 
 At the end of the time of me going to view the vehicle, I made the agreement to come back the Monday to purchase the vehicle. The lady also agreed of allowing me to purchse the vehice at a reduced price. Afte that, it was only a matter of getting it checked by a registered machanic to make sure it was all good with electricals and the engine was able to run for a few months after purchase. 
 
+   ![Starlet ](./assets/Seanico25_3.jpg)
+
+
 All in all I got the vehicle I really wanted and I was happy with the purchase .
 
 
-        ![Starlet 1](./assets/Seanico25_3.jpg)
+      
+     
 
 
