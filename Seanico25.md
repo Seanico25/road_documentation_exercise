@@ -17,6 +17,6 @@ At the end of the time of me going to view the vehicle, I made the agreement to 
 All in all I got the vehicle I really wanted and I was happy with the purchase .
 
 
-        ![Starlet](./assets/Seanico25_3.jpg)
+        ![Starlet 1](./assets/Seanico25_3.jpg)
 
 
