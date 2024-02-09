@@ -44,3 +44,11 @@ The Sims' portrayal of emotional depth, especially in The Sims 4, with its focus
 In essence, The Sims is not just a game; it's a living canvas to sculpt narratives, explore creative depths, and discover solace within a meticulously simulated universe. Its seamless integration of strategic gameplay with boundless creative freedom makes it an extraordinary and **timeless** experience. 
 </details>
 
+### Sims Series
+The Sims game along with the aforementioned expansive collection of packs and additional content allow for the game to be used to create animated series. Photos, videos, audio and editing software are combined to create animated video series that tell engaging stories to targetted audiences (that are usually posted on Youtube).
+
+#### ANON: Sims 3 Series
+
+![Anon Sims 3 Series Season 1](/assets/ToniVD_4.jpg)
+
+[**Anon**](https://www.youtube.com/watch?v=O4bz_A6Ntwg&list=PL7FD3BACFAA86BE24) is a Sims series, with 10 seasons, that follows a character named Chelsea who likes to document her various life experiences in a blog.
